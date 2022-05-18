@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @harnbergerdorina
+- 👀 I’m interested in Recruitment and HR
+- 🌱 I’m currently learning marketing
+- 💞️ I’m looking for my future developer, tester colleagues (read my posts about our open positions)
+- 📫 How to reach me: harnbergerdorina@idbc.hu, dorina.harnberger@nng.com
